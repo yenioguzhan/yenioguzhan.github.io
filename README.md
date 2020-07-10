@@ -1,0 +1,2 @@
+# yenioguzhan.github.io
+Blog
